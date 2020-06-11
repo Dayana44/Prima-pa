@@ -1,12 +1,8 @@
-Bienvenido
-
+Bienvenido 
 
 Melanie Dayana Giron Lopez
 
+Melanie Nahomi Giron Lopez
 
-Melanie Nahomi  Giron Lopez 
-
-
-Sexto  Administracion 
-
+Sexto Administracion 
 
